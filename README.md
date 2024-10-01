@@ -7,6 +7,6 @@
 - ⚡ Fun fact: ... I am working on e-commerce plateform and generate ROI.
 
 <!---
-Tahir787/Tahir787 is a ✨ special ✨ repository because its `README.md` (@Tahir787) appears on your GitHub profile.
+Tahir787/Tahir787 is a ✨ special ✨ repository because its (@Tahir787) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
