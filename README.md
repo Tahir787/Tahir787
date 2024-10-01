@@ -3,7 +3,7 @@
 - 🌱 I’m currently working on ebay. TikTok.Amazon.Walmart.etc plateform
 - 💞️ I’m looking to collaborate on e-commerce plateform.
 - 📫 How to reach me...you can hire me without any Hesitate and contact me +923137262400.
-- 😄 Pronouns: ... 
+- 😄 Pronouns: ... 100% granted work 
 - ⚡ Fun fact: ... I am working on e-commerce plateform and generate ROI.
 
 <!---
